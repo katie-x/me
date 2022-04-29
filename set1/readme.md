@@ -1,1 +1,1 @@
-TODO: Reflect on what you learned this week and what is still unclear.
+Have learnt lots but so much info to also digest properly...!
